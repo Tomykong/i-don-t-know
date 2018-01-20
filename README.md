@@ -1,1 +1,1 @@
-print("# i-don-t-know welcome to my discord helloooooo there are some rules mostly just keep it clean and no swearing and mostiimportently have fun (iknow it's cheasy deal with it(puts on swag sunglasses)i'm tottaly cool)")
+# i-don-t-know welcome to my discord helloooooo there are some rules mostly just keep it clean and no swearing and mostiimportently have fun (iknow it's cheasy deal with it(puts on swag sunglasses)i'm tottaly cool)
